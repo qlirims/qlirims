@@ -1,0 +1,2 @@
+# qlirims
+Sporti nderkombtar 
